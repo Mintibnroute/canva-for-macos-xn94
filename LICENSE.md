@@ -1,4 +1,4 @@
-# 
+# top Canva for macOS Extension | gradient maps + blend modes offers the most advanced Canva for macOS extension, with gradient maps and blend modes. Ideal for professional
 
 
 
